@@ -1,0 +1,1 @@
+# FileEsAdatszerkezetek_20230518
